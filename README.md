@@ -1,1 +1,2 @@
-# Fernando-Boudourian-frente-a-se-ales-d-biles
+# Fernando-Boudourian-frente-a-señales-débiles
+Fernando Boudourian analiza la creciente desconexión entre los índices líderes y el resto del mercado. Mientras algunos alcanzan máximos históricos, la mayoría de las acciones muestran señales de debilidad. La amplitud en descenso, la rotación hacia sectores estables y los spreads de crédito en aumento podrían señalar un bear market encubierto, sin colapso inmediato, pero de impacto duradero.
